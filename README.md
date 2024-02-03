@@ -6,7 +6,7 @@
 
 ____________
 Со мной можно связаться:
-- по почте daria.tsenina@gmail.com 
+- по почте oblachnyi-atlas@yandex.ru
 - в ТГ @daria_shamova
 
 <!--
